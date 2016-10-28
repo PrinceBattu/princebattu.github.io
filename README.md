@@ -1,1 +1,1 @@
-# princebattu.github.io
+# http://seeamislam.github.io
